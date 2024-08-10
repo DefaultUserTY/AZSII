@@ -5,8 +5,8 @@
  4. https://www.cian.ru/rent/flat/305791389/
  5. https://www.cian.ru/rent/flat/305624369/
  6. https://www.cian.ru/rent/flat/305672659/
- 7. https://www.cian.ru/rent/flat/305684571/
- 8. https://www.cian.ru/rent/flat/305729403/
+bad 7. https://www.cian.ru/rent/flat/305684571/
+bad 8. https://www.cian.ru/rent/flat/305729403/
 
 
 pls no.https://www.cian.ru/rent/flat/223749450/
